@@ -1,3 +1,3 @@
 # Avraham Golish, ASA, MAAA
-CareFirst BlueCross BlueShield
+Actuary working for CareFirst BlueCross BlueShield
 https://www.linkedin.com/in/avraham-golish-asa-maaa-19604519b/
