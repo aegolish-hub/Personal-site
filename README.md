@@ -1,6 +1,6 @@
 # Avraham Golish
 Avraham Golish, ASA, MAAAA. Actuary working for CareFirst BlueCross BlueShield
-https://www.linkedin.com/in/avraham-golish-19604519b/
+https://www.linkedin.com/in/avraham-golish/
 
 https://avrahamgolish.wordpress.com/
 
